@@ -1,0 +1,1 @@
+# magdalenakruk.com.pl
